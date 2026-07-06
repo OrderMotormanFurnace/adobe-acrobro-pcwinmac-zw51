@@ -1,4 +1,4 @@
-# 
+# Nuevo Adobe Acrobat Pro flujo de trabajo para Mac OS | Ligero Adobe Acrobat Pro flujo de trabajo para PC Windows. Con formularios W-2 y 1099 y e-file del IRS — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
